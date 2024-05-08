@@ -1,3 +1,3 @@
 I am coding sometimes
 
-senior in computer science 
+BS Computer Science & Engineering since may 2024
